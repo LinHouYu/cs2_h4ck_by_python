@@ -7,7 +7,7 @@
 
 ## 🎬 视频演示
 你可以在 Bilibili 上观看相关演示视频：  
-👉 [我的B站主页](审核还没过。。。)
+👉 [我的B站主页](https://b23.tv/MqJCACb)
 <img width="1920" height="1080" alt="我去，这透帅吧？" src="https://github.com/user-attachments/assets/18527118-ff0d-4d3a-b846-12126a2e4970" />
 
 ---
